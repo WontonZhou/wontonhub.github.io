@@ -2,7 +2,7 @@
 
 "Step Back"
 
-[Romanized:]
+[Romanized:] 1
 
 You must step back eodel eodel bwa
 Neo gamhi nugurago nal jekkyeo
